@@ -1,2 +1,0 @@
-# LiveTown
-Coming Soon…
